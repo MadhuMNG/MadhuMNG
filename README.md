@@ -14,4 +14,4 @@
 
 - TCS
 - EY
-  ![ ](welcome.webp)
+  
