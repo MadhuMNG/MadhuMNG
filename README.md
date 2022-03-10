@@ -25,5 +25,4 @@
 
 :joy: I am passion about Artistic activities such as painting, pencil sketch, crochet, Resin jewellery making
 
-my Insta page
-
+[My insta page] https://www.instagram.com/padma_vibhooshita/
