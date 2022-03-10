@@ -26,3 +26,12 @@
 :joy: I am passion about Artistic activities such as painting, pencil sketch, crochet, Resin jewellery making
 
 [My insta page] https://www.instagram.com/padma_vibhooshita/
+
+![ Lotus](https://upload.wikimedia.org/wikipedia/commons/e/ed/Sacred_lotus_Nelumbo_nucifera.jpg)
+
+
+
+
+
+
+
