@@ -1,6 +1,6 @@
 # Hello everyone
   
-I am Madhu :woman_office_worker:. I am basically from India :india:. Since 5 years I am staying in Brussels :belgium:. 
+I am *Madhu* :woman_office_worker:. I am basically from [India](https://en.wikipedia.org/wiki/India) :india:. Since 5 years I am staying in `Brussels` :belgium:. 
 
 ## Linguistic capabilities
 
@@ -25,11 +25,11 @@ I am Madhu :woman_office_worker:. I am basically from India :india:. Since 5 yea
 
 ### Hobbies
 
-:joy: I love Art. I always try to learn new things be creative. I passion about painting, pencil sketch, crochet, Resin jewellery making
+I love Art. I always try to learn new things and creative. I'm passion about painting, pencil sketch, crochet, resin jewellery making
 
 ### Reach me
 
-- [gmail](madhuamaranthus2@gmail.com)
+- [Gmail](madhuamaranthus2@gmail.com)
 - [Instagram](https://www.instagram.com/padma_vibhooshita/)
 
 
