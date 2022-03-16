@@ -27,7 +27,11 @@ I am Madhu :woman_office_worker:. I am basically from India :india:. Since 5 yea
 
 :joy: I love Art. I always try to learn new things be creative. I passion about painting, pencil sketch, crochet, Resin jewellery making
 
-my insta page : https://www.instagram.com/padma_vibhooshita/
+#### Reach me
+
+- [gmail](madhuamaranthus2@gmail.com)
+- [Instagram](https://www.instagram.com/padma_vibhooshita/)
+
 
 ![Lotus](https://upload.wikimedia.org/wikipedia/commons/e/ed/Sacred_lotus_Nelumbo_nucifera.jpg)
 
