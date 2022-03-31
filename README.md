@@ -4,7 +4,7 @@ I am *Madhu* :woman_office_worker:. I am basically from [India](https://en.wikip
 
 ## Linguistic capabilities
 
-1. Kannada
+1. Kannada, Hindi and Telgu
 2. English
 3. French and Dutch 
 
